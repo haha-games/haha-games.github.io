@@ -1,1 +1,1 @@
-# haha-games.github.io
+# haha-games
